@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ganeshmurugan1124
+- 👋 Hi, I’m GaneshMuurgan
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning AI Data Science
 - 💞️ I’m looking to collaborate on Let’s connect if you’re working on AI, data science, or design projects Always looking for meaningful collaborations to Supply Chain Optimization Project and stil work on one mini project https://www.linkedin.com/posts/mganeshmurugan11112004_my-1st-as-a-supply-chain-optimization-activity-7215010331473895424-xqfp?utm_source=share&utm_medium=member_desktop
